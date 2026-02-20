@@ -1,1 +1,1 @@
-masih jajal
+ok
